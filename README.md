@@ -1,4 +1,4 @@
-### Future Value Analysis of Mediocre Social Network Apps Incorporated
+### **Future Value Analysis of Mediocre Social Network Apps Incorporated**
 
 
 From 2015 to 2019, the media industry has gone through various big changes with people’s changing needs and preferences. 
